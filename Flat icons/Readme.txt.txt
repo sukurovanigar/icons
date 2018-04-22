@@ -1,0 +1,1 @@
+https://www.flaticon.com/packs/puppets?word=money&group_id=65&category_id=28,78
